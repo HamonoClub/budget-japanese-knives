@@ -38,6 +38,10 @@ We keep an updated, verified shortlist of budget Japanese knives that are actual
 
 **[Affordable Japanese knives — curated picks at Hamono Low Cost](https://lowcost.hamonoclub.com/)**
 
+In-depth guides:
+- [Best budget Japanese knives, the best pick by type](https://lowcost.hamonoclub.com/mejores-cuchillos-japoneses-baratos/)
+- [Which budget brand to choose: Victorinox, HOSHANHO, Mitsumoto, PAUDIN, SHAN ZU](https://lowcost.hamonoclub.com/marcas-cuchillos-japoneses-baratos/)
+
 The list is revised as availability and prices change, so a pick is never left up once it stops making sense.
 
 ---
